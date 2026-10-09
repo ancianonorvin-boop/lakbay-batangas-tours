@@ -1,1 +1,1 @@
-I am the Choosen One
+I AM THE CHOSEN ONE
